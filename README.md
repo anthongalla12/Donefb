@@ -1,6 +1,8 @@
 # Donefb
 
-Lisensi download disini : https://autoratio.com/dle0p
+Lisensi telah di update tgl 01-04-2020
+
+Lisensi download disini : https://taut.pro/lrVTBXyB3
 
 Cara agar tidak cp saat login: 
 https://autoratio.com/n2iqmyGv8
